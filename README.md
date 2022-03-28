@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @felixcorro
-actaulmente colaboro con el ITSAV como parte de su plantila docente, me ingeresa a tecnologia, la programación y las utilrias de informatica 
+actualmente colaboro con el ITSAV en su plantilla docente 
 contacto: felixefraincorroisla@gmail.com
